@@ -1,0 +1,2 @@
+# GoogleTranslatedOres
+idk man
